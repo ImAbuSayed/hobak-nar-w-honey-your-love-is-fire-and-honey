@@ -19,7 +19,10 @@
 
 ## Excerpt
 
-> [Clean lyric will be pushed here]
+> يا حبيبي حبك نار
+> طعم الشهد كالأنهار
+> تعال هنا في أحضاني
+> نعيش الليل بالأسرار
 > ...
 
 [View Full Lyrics ->](./lyrics.txt)
